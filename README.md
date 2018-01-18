@@ -1,2 +1,0 @@
-# cucu
-coso de escuela
